@@ -39,7 +39,7 @@
 
 ### 📫 Reach Me
 
-- Email: [narayan.sangale@email.com](mailto:naraynvs726@email.com)
+- Email: (mailto:naraynvs726@gmail.com)
 - LinkedIn: [narayan-sangale](https://www.linkedin.com/in/narayan-sangale)
 
 ---
